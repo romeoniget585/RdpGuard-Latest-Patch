@@ -1,0 +1,1 @@
+# RdpGuard-Latest-Patch
